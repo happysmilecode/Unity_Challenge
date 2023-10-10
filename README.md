@@ -4,8 +4,6 @@
 [About](#about)  
 [Story](#story)  
 [Copyright & Licensing](#copyright--licensing)  
-[Links & Playlist](#links--playlist)  
-[Inspiration](#inspiration)  
 [Contact](#contact)
 
 ## FyWorld Future / End :(
